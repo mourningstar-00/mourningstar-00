@@ -7,5 +7,4 @@
 </div>  Huā Chéng - Xiè Lián
 </div>
 
-Thank u so much for ur help, my friend @dawnsummer, in completing the README!! 
-I love you so much
+Thank u so much for ur help, my friend @dawnsummer, in completing the README!
